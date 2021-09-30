@@ -5,8 +5,4 @@
 - 📫 How to reach me? 
 - 
   You can use my linkedIn account: https://www.linkedin.com/in/BeardyOrc/
-  
-  or 
-  
-  Simply dowload it from my disk: https://disk.yandex.ru/d/eJ0ngKQfqGZkqg
 
